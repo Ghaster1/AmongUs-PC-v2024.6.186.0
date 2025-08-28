@@ -1,0 +1,4 @@
+nigga 
+purna
+dick
+omg
